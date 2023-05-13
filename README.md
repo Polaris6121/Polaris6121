@@ -22,7 +22,7 @@ Hi I am Dhruva OR Polaris6121
 - 😊I'm also learning About Game Development also as I Absolutly love Games🎮.
 - 🪢Besides coding I love to Play Games,Listening Music🎶🎧🎶 and reading Novels📚.
 - 📛Endeavour to be a Coder & to build projects.
-- 👍You can contact me through: dhruvabhattacharya471@gmail.com
+- 👍You can contact me through: dhruvabhattacharya47@gmail.com
 
 
 
